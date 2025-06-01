@@ -1,1 +1,0 @@
-# lahta-center-by-dubivotsasa
